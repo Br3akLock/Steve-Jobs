@@ -1,2 +1,2 @@
 # Steve Jobs
- Pagina Web da historia do Steve Jobs
+ Pagina sobre a vida de Steve Jobs.
